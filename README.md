@@ -1,0 +1,1 @@
+Welcome to Yoky’s Confectionaries and Events, where elegance, creativity, and taste come together to create unforgettable experiences. We are a luxury confectionery and event brand dedicated to delivering premium culinary services, bespoke cakes, and exceptional event experiences tailored to every celebration.
